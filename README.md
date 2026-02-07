@@ -1,0 +1,2 @@
+# NOTHING TO SAY HERE, JUST JOIN SCAMNAPSIA!
+# https://discord.gg/wXQYe4RHuk
